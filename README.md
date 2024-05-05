@@ -38,16 +38,3 @@ In conclusion, users can relive the nostalgic and immersive experience of the ic
 
 Video link: https://youtu.be/GDw-dtI7G9I
 
-
-References 
-OLIVAREZ-GILES.N .2013. Tamagotchi Is Reborn as an Android App. [Online]. Available at: https://www.wired.com/2013/02/tamagotchi-life-android-app/ [Assessed 27 April 2024]. 
-
-Sherman. J .2013. Tamagotchi’s Android app lets you relive 1996, but it’s mostly crap in retrospect. [Online]. Available at: https://www.digitaltrends.com/mobile/tamagotchi-hands-on-android/ [Assessed 27 April 2024].
-
-Lawangdesign. 2022.Cute cat with an inflatable ball. [Online]. Available at: https://img.freepik.com/premium-vector/cute-cat-with-inflatable-ball_70172-2105.jpg?w=360 [Assessed 27 April 2024]. 
-
-Lawangdesign. 2022.Cute cat eating noodle cartoon. [Online]. Available at: https://www.freepik.com/premium-vector/cute-cat-eating-noodle-cartoon_26558640.htm [Assessed 27 April 2024]. 
-
-Lawangdesign.2022. Cartoon cat bathing in the bathtub. [Online]. Available at: https://img.freepik.com/premium-vector/cartoon-cat-bathing-bathtub_70172-2224.jpg [Assessed 27 April 2024].
-
-
